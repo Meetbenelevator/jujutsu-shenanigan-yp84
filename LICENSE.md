@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with stealth jujutsu shenanigans Scripts, the #1 Script. Includes custom skins and infinite
 
 
 
